@@ -1,4 +1,4 @@
-                                             Ingredients
+                                           Ingredients
                                1 (18.25 ounce) package white cake mix
 
 
